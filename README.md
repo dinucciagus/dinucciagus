@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![Agustina Di Nucci](https://user-images.githubusercontent.com/105603671/194959965-33a59512-68bd-45d1-909e-91d052e4acef.gif)
+![Vídeo sin título ‐ Hecho con Clipchamp](https://user-images.githubusercontent.com/105603671/194960317-536508b2-bb7b-4aad-8439-8625f5e64f89.gif)
 
 
 
