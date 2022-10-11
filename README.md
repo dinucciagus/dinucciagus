@@ -1,8 +1,8 @@
 ### Hi there 👋
 
 
+![Agustina Di Nucci (1)](https://user-images.githubusercontent.com/105603671/195040469-2e006896-9c6c-4def-9d9a-70a060c42838.gif)
 
-https://user-images.githubusercontent.com/105603671/195039606-3a20db72-9ba4-4ca5-8d33-14f73a3db80e.mp4
 
 
 
